@@ -17,4 +17,4 @@ Next time we will see a link to the discord server
 
 https://discord.gg/NNcnnKSHmd
 
-bay bay
+bye bye
